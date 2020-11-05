@@ -7,3 +7,4 @@ Hopefully I will be able to make better looking webpages in the future.
 ![2020-11-05 (1)](https://user-images.githubusercontent.com/67846486/98304480-a9835500-1f85-11eb-9690-b70c606fd152.png)
 
 
+![2020-11-05 (2)](https://user-images.githubusercontent.com/67846486/98304554-c7e95080-1f85-11eb-950c-f7a380e84cb6.png)
